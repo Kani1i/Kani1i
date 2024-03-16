@@ -1,4 +1,4 @@
 - Hi, I’m @Kani1i
-- I’m interested in cars, music, horror, paranormal, unsolved cases, 
+- I’m interested in cars, music, horror, paranormal, unsolved cases, drawing, walking
 - How to reach me insta- JesusLuvsKaniii
 - Pronouns-she/her
